@@ -1,0 +1,1 @@
+# kazgeo.github.io
